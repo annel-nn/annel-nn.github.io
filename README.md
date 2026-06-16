@@ -2,6 +2,26 @@
 [linkedin.com/in/montalvo-coronel](https://www.linkedin.com/in/montalvo-coronel/)
 
 ---
+<pre aria-hidden="true">
+               ,----------------,              ,---------,
+        ,-----------------------,          ,"        ,"|
+      ,"                      ,"|        ,"        ,"  |
+     +-----------------------+  |      ,"        ,"    |
+     |  .-----------------.  |  |     +---------+      |
+     |  |                 |  |  |     | -==----'|      |
+     |  |  I LOVE DOS!    |  |  |     |         |      |
+     |  |  Bad command or |  |  |/----|`---=    |      |
+     |  |  C:\>_          |  |  |   ,/|==== ooo |      ;
+     |  |                 |  |  |  // |(((( [33]|    ,"
+     |  `-----------------'  |," .;'| |((((     |  ,"
+     +-----------------------+  ;;  | |         |,"     -Kevin Lam-
+        /_)______________(_/  //'   | +---------+
+   ___________________________/___  `,
+  /  oooooooooooooooo  .o.  oooo /,   \,"-----------
+ / ==ooooooooooooooo==.o.  ooo= //   ,`\--{)B     ,"
+/_==__==========__==_ooo__ooo=_/'   /___________,"
+`-----------------------------'
+</pre>
 
 ## Estudiante Universitaria
 **Carrera:** Ciencia de Datos
@@ -32,8 +52,14 @@ El trabajo colaborativo y multidisciplinario es fundamental en el mundo de la te
 * Página de [Diego Fabrizio Sucasaca Cohata](https://diegosucasacacohata-wq.github.io/Diego-Fabrizio-Sucacaca-Cohata/)
 * Página de [Anny Varinia Ramirez Quispe](https://anny-ramirez.github.io/anny-varinia-ramirez-quispe/)
 
+.
 
-kurpito gay
+
+.
+
+.
+
+eñiot gay
 
 
 
