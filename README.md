@@ -28,14 +28,23 @@ Durante mi formación en la UCSP, he desarrollado mis habilidades técnicas, mat
 El trabajo colaborativo y multidisciplinario es fundamental en el mundo de la tecnología. A lo largo de mi carrera, he participado en diversos proyectos de programación y análisis junto a futuros colegas del rubro. Te invito a conocer su trabajo y perfiles:
 
 * Página de [Esteban Flores Mango](https://furitaxs.github.io/estebanfloresmango.github.io/)
+* Página de [Josue Francisco Chirinos Salas](https://achirinosaaaaaaa07-ship-it.github.io/Josue-Francisco-Chirinos-Salas/)
+* Página de [Diego Fabrizio Sucasaca Cohata](https://diegosucasacacohata-wq.github.io/Diego-Fabrizio-Sucacaca-Cohata/)
 
 
 
+kurpito gay
 
 
 
+.
 
 
+.
+.
+
+
+.
 <pre aria-hidden="true">
 ░░░░░░░░░░░░▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄░░░░░░░░░░░░░
 ░░░░░▄▄▄▄█▀▀▀░░░░░░░░░░░░▀▀██░░░░░░░░░░░
