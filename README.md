@@ -51,7 +51,7 @@ El trabajo colaborativo y multidisciplinario es fundamental en el mundo de la te
 * Página de [Josue Francisco Chirinos Salas](https://achirinosaaaaaaa07-ship-it.github.io/Josue-Francisco-Chirinos-Salas/)
 * Página de [Diego Fabrizio Sucasaca Cohata](https://diegosucasacacohata-wq.github.io/Diego-Fabrizio-Sucacaca-Cohata/)
 * Página de [Anny Varinia Ramirez Quispe](https://anny-ramirez.github.io/anny-varinia-ramirez-quispe/)
-
+* Página de [Lucia Mateo Carpio](https://luciamateocarpio.github.io/)
 .
 
 
@@ -59,7 +59,7 @@ El trabajo colaborativo y multidisciplinario es fundamental en el mundo de la te
 
 .
 
-eñiot gay
+
 
 
 
