@@ -52,6 +52,8 @@ El trabajo colaborativo y multidisciplinario es fundamental en el mundo de la te
 * Página de [Diego Fabrizio Sucasaca Cohata](https://diegosucasacacohata-wq.github.io/Diego-Fabrizio-Sucacaca-Cohata/)
 * Página de [Anny Varinia Ramirez Quispe](https://anny-ramirez.github.io/anny-varinia-ramirez-quispe/)
 * Página de [Lucia Mateo Carpio](https://luciamateocarpio.github.io/)
+* Página de [Mauricio Sebastian Sanchez Ramos](https://1-mou.github.io/pagina-web/)
+* Página de [Yenider Huarachi](https://yeniferhuarachi-code.github.io/yeniferhuarachihalanoca.github.io/)
 .
 
 
